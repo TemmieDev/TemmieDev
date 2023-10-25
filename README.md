@@ -1,2 +1,1 @@
-
-![FzEQKwwagAEhZRw](https://github.com/TemmieDev/TemmieDev/assets/128328335/e387df9e-0ec9-41de-9f70-6ac940876239)
+![FnupCl6aUAcyvCL](https://github.com/TemmieDev/TemmieDev/assets/128328335/2220b2ea-3d97-4666-8040-b3721020173d)
